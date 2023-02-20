@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LucasMarcellino
-- 👀 I’m interested in UI/UX designer
+
 - 🌱 I’m currently learning at Bina Nusantara Malang
 - 💞️ I’m looking to collaborate on big company to have a lot of experience
 - 📫 How to reach me in instagram @lucasmarcellino14
